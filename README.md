@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on<br>Building cool stuff that breaks first and works later 😭<br><br>👯 I’m looking to collaborate on<br>Fun web projects, sci-fi ideas, and anything that looks futuristic<br><br>🌱 I’m currently learning<br>AI, UI/UX, and how to fix bugs without creating 10 new ones<br><br>💬 Ask me about<br>Space,  F1,  cinema,  tech,  drama and late-night ideas<br><br>⚡ Fun fact<br>I spend more time customizing my setup than actually using it 💀
+🔭 Currently working: Building cool stuff that breaks first and works later 😭<br><br>🤜🤛 Looking to collaborate: Fun web projects, sci-fi ideas, and anything that looks futuristic<br><br>🌱 currently learning: AI, UI/UX, and how to fix bugs without creating 10 new ones<br><br>💬 Ask me about: Space,  F1,  cinema,  tech,  drama and late-night ideas<br><br>⚡ Fun fact: I spend more time customizing my setup than actually using it 💀
 
 
 ## 🌐 Socials:
